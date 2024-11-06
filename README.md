@@ -73,4 +73,4 @@ For any questions or suggestions, please feel free to reach out using the contac
 
 Email: baydemirhatice@hotmail.com
 
-LinkedIn: Hatice Baydemir [Hatice Baydemir](https://www.linkedin.com/in/haticebaydemir/) 
+LinkedIn: [Hatice Baydemir](https://www.linkedin.com/in/haticebaydemir/) 
